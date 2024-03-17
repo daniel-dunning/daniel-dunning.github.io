@@ -4,7 +4,6 @@ date: 2024-03-16 22:00:00
 category: visit
 tags: [visit,thomas family,mom]
 ---
-# Nice visit from Mom and the Thomas Family
 It was a nice surpise to have Mom, Susan, Micky and Lexi come down on the train to visit with me on Thursday.  I knew that a trip was planned but was certain that it would happen later in the month when the Cherry Blossoms were in full bloom.  But they arrived on Friday and it was wonderful to connect with everyone.    We hung out a little bit on Friday and endded up having dinner at Outback which was close to where they were staying.
 
 ## Friday
