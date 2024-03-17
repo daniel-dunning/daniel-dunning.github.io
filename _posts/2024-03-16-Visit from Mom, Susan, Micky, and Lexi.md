@@ -21,6 +21,6 @@ For dinner, we went to a local restaurant called the Sweetwater Tavern in Sterli
 ## Saturday
 THe train back to New Jersey was leaving at 3pm, so we headed over to the Amphora Deluxe Diner [Amphora Deluxe Diner](https://amphoragroup.com/amphoras-diner-deluxe/) which was very good.  We had a short phone conversation with Jake which was also nice, as he was getting his day started in Indiana.  After breakfast, everyone loaded up and headed back to New Jersey, but not before we were able to get a couple of pictures taken.
 
-Photos:
-![Dan, Mom, Karl & Lexi](assets/photos/ dan-mom-karl-lexi.JPG)
-
+![mom-karl-dan-lexi](https://github.com/daniel-dunning/daniel-dunning.github.io/assets/68135537/b1b715d9-18ea-49de-be42-88fa3e5525b1)
+![susan-mom-dan-lexi-micky](https://github.com/daniel-dunning/daniel-dunning.github.io/assets/68135537/b7b0aa3f-4b33-4a9d-99d5-c9ba26ae3eec)
+![susan-mom-karl-lexi-micky](https://github.com/daniel-dunning/daniel-dunning.github.io/assets/68135537/09718234-b79f-4a58-8b72-b4f8d77ca82c)
