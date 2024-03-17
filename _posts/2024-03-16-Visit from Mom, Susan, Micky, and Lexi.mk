@@ -20,7 +20,7 @@ https://www.sweetwatertavern.pub/location/sterling
 ## Saturday
 THe train back to New Jersey was leaving at 3pm, so we headed over to the Amphora Deluxe Diner ( https://amphoragroup.com/amphoras-diner-deluxe/ ), which was very good.  We had a short phone conversation with Jake which was also nice, as he was getting his day started in Indiana.  After breakfast, everyone loaded up and headed back to New Jersey, but not before we were able to get a couple of pictures taken.
 
-Photos:\
+Photos:
 ["test"|/assets/images/logp/mom-karl-dan-lexi.jpg]
 
 
